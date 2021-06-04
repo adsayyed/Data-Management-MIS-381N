@@ -13,4 +13,4 @@ Teammates:
 [India Lindsay](https://www.linkedin.com/in/india-lindsay/), 
 [Ram Kapistalam](https://www.linkedin.com/in/ramkapistalam/), 
 [Luke Bravo](https://www.linkedin.com/in/luke-bravo/), 
-[Daniel Stern](https://www.linkedin.com/in/daniel-g-stern/), 
+[Daniel Stern](https://www.linkedin.com/in/daniel-g-stern/)
